@@ -47,7 +47,7 @@ I'm a passionate and curious developer with a background in **Software Developme
 
 ## 📫 Let's Connect
 
-- 🌐 [LinkedIn](https://www.linkedin.com/in/your-linkedin/)
+- 🌐 [LinkedIn](www.linkedin.com/in/kgotso-machabelele-b9a4611a8)
 - 📨 Email: apeasticwilliam@gmail.com
 
 
